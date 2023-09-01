@@ -1,5 +1,8 @@
 
 
 
-https://github.com/yunusoktay/CatBreeds/assets/90962485/9b53e57f-cb70-48e9-8b12-c3a81f9de938
+
+https://github.com/yunusoktay/CatBreeds/assets/90962485/f9118d89-68d5-4dea-acd4-8d6b496ac1ca
+
+
 
